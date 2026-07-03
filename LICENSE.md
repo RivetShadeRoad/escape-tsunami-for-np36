@@ -1,4 +1,4 @@
-
+premium Script for break a brainrot egg offers the most advanced break a brainrot egg Script, with no clip and anti-ban. Perfect for dominating any
 
 
 
